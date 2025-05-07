@@ -1,1 +1,0 @@
-# IT26-A_LASPONA
